@@ -1,0 +1,5 @@
+- I’m @damccollum
+- I’m currently completing a Cybersecurity Bootcamp
+- I'm also going to get my Security+ and Network+ certifications soon
+- 
+-
